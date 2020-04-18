@@ -1,1 +1,1 @@
-Hi! Welcome to the Krazy Kidz blog! In this blog we will update you on how we are feeling, new videos and new content 
+Hi! Welcome to the Krazy Kidz blog! In this blog we will update you on how we are feeling, new videos and new content! Also some tips and tricks, polls and more for you to get involved! Go to the homepage at 
